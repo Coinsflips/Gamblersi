@@ -51,6 +51,3 @@ $\color{#959BA7}\textsf {me and my partner ♡ hello dearest}$ <img width="20" h
   </a>
 </p>
 
-<p align="center">
-aren't I so kyut thank u markus for this drawing I'm so  fucking kyut
-<img width="3120" height="4160" alt="25622" src="https://github.com/user-attachments/assets/141dba32-235e-4d1c-9bac-18cd17886d9b" />
